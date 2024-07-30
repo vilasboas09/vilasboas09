@@ -1,5 +1,7 @@
 # encosta no meu perfil pai
 
+![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
+
 
  . Eu me chamo enzo
 
@@ -11,5 +13,5 @@
 
 
 
- ![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
+
  
